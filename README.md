@@ -1,2 +1,0 @@
-# grrrrlee
-어항
